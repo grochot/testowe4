@@ -3,3 +3,5 @@
 to jest pierwsza linijka
 
 sdsadsadasd
+
+kolejna linijka
