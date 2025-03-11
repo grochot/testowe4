@@ -6,3 +6,5 @@ sdsadsadasd
 
 
 dasdsadasdasdsaddasdsadsdasd
+
+przepraszam za bycie wścibskim
