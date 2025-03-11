@@ -6,3 +6,6 @@ sdsadsadasd
 
 
 dasdsadasdasdsaddasdsadsdasd
+
+
+zmiana zmiana zmiana
